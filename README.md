@@ -8,8 +8,6 @@
 
 👋 Hello, I'm Dalia Ibrahim.
 
-👉 [My Courses](https://courses.davegray.codes/)
-
 🚀 Follow Me:
 
 - [LinkedIn](https://www.linkedin.com/in/dalia-ibrahim-5883782b0)
